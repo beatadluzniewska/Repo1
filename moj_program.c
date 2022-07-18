@@ -1,1 +1,1 @@
-moj program
+moj program jest super

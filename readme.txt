@@ -1,1 +1,1 @@
-beata dluzniewska
+beata justyna luzniewska
